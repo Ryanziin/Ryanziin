@@ -1,6 +1,6 @@
 # Ryan Lopes 
 
-Manager at @ServersTitan - Servidores de Minecraft.
+Manager at @ServersTitan - Minecraft Servers.
 
 My name is Ryan and I am 18 years old. Manager at the company @ServersTitan - since 2019.
 
